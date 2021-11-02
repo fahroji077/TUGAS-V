@@ -13,8 +13,11 @@
 3. JAJAR GENJANG
 
 <img width="960" alt="no 3 (01)" src="https://user-images.githubusercontent.com/93015185/139866161-414f3109-0fe2-4b48-af36-acddeda8565e.png">
+
 <img width="960" alt="no 3 (02)" src="https://user-images.githubusercontent.com/93015185/139866188-03733b5b-1968-4537-ab34-3d43fcdd7924.png">
+
 ![image](https://user-images.githubusercontent.com/93015185/139866474-20de8e02-1fe7-49e3-ab8a-20d23c1ddc78.png)
+
 ![image](https://user-images.githubusercontent.com/93015185/139866806-484591f9-c739-4a67-881a-018daefa03f6.png)
 
 4. SEGITIGA
