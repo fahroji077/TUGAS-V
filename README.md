@@ -32,3 +32,20 @@
 
 6. LAYANG-LAYANG
 
+![image](https://user-images.githubusercontent.com/93015185/139868300-45c04f24-0b34-496f-ab3b-6bc24716dfc4.png)
+![image](https://user-images.githubusercontent.com/93015185/139868393-d190d18f-f6a0-4520-a28d-9d2449f52ecd.png)
+![image](https://user-images.githubusercontent.com/93015185/139868784-8c59a108-8b18-4b5c-a324-0ff87e347f03.png)
+![image](https://user-images.githubusercontent.com/93015185/139868991-f8e6ab05-558a-4cfd-a5b8-4be292d2f2f3.png)
+
+7. TRAVESIUM
+
+![image](https://user-images.githubusercontent.com/93015185/139869198-464ac7e2-e3d8-4e40-a303-5d2cca64257c.png)
+![image](https://user-images.githubusercontent.com/93015185/139869242-d201da24-6878-411c-b0cd-17b08e813cab.png)
+![image](https://user-images.githubusercontent.com/93015185/139869486-e98a3a39-db1d-444f-abb1-6f3be66a893f.png)
+![image](https://user-images.githubusercontent.com/93015185/139869715-64fd75b9-54c8-42e7-ae2e-93e5c0fb3189.png)
+
+8. LINGKARAN
+
+![image](https://user-images.githubusercontent.com/93015185/139869992-ecd8ab3f-4a76-4efb-ba40-e15f6a207f45.png)
+![image](https://user-images.githubusercontent.com/93015185/139870269-c4dd90d0-ff7c-4f68-a2f9-abe23054c0fc.png)
+
